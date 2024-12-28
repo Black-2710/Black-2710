@@ -3,7 +3,7 @@
 
 # Yoo! I'm /
 
-no longer human, who got burdened with a purpose, navigating the world through silence.
+no longer human, who got burdened with a purpose,.
 
 ## About Me
 
