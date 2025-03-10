@@ -8,6 +8,7 @@ no longer human, who got burdened with a purpose,.
 ## About Me
 
 Nothing spl nvm*
+I use Arch btw!...lol
 
 ## My GitHub
 
