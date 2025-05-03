@@ -9,8 +9,6 @@ no longer human, who got burdened with a purpose,.
 
 Nothing spl nvm*
 
-I use Arch btw!...lol
-
 ## My GitHub
 
 Most are in pvt but still working on something like this day...
